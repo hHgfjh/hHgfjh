@@ -1,5 +1,7 @@
-my jammy gijinka
-<img width="714" height="1024" alt="1779885848229" src="https://github.com/user-attachments/assets/a8ae7cb7-b52e-43dd-8ca9-394abcc61929" />
+YEOWCH MY AIRTITS
+https://github.com/user-attachments/assets/e14a76fb-7eee-4fa9-866a-1b6ec64fd6d0
+
+
 
 <!--
 **hHgfjh/hHgfjh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
